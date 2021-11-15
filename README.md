@@ -8,4 +8,3 @@ This is a simple list of things I enjoy, anime, music, programming, anything. Al
 * [Garra vs Lee, Naruto Ep-48](https://www.youtube.com/watch?v=ltn2YITCdFw)
 * [I'll use everything, Hunter X Hunter Ep-131](https://www.youtube.com/watch?v=XL2PiVNYD_Y)
 * [God Speed, Hunter X Hunter Ep-119](https://www.youtube.com/watch?v=l5ZjHhsdLSQ)
-* 
